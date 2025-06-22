@@ -1,6 +1,6 @@
 # 🚀 Zenith
 
-**The AI-Native, Blockchain-Secure Platform for Autonomous DevOps**
+**Jira saw us and Left the Group Chat :<**
 
 ---
 
